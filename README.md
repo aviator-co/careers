@@ -1,2 +1,2 @@
 # careers
-We currently do not have any open roles. Please reach out to support@mergequeue.com if you have any questions.
+See our open roles [here](https://www.ycombinator.com/companies/aviator/jobs).
